@@ -13,4 +13,4 @@ Ghệ yêu dấu của em ơi<br>Ghệ yêu dấu của em ơi<br>Ghệ có bi�
 [![](https://visitcount.itsvg.in/api?id=ANYAA409&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-![My Discord](https://discord-readme-badge.vercel.app/api?id=<1033685550458228737>)
+
